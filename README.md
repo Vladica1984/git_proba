@@ -1,2 +1,2 @@
-# ovo je Vladicin drugi najbolji repozitorijum!
+# ovo je Vladicin najbolji repozitorijum!
 
